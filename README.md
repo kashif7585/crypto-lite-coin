@@ -1,0 +1,2 @@
+# crypto-lite-coin
+Free
